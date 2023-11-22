@@ -2,11 +2,9 @@
 
 - 👋 Olá, meu nome é _**Beatriz**_!!
   
-- 🎨 Eu estou interessada em um monte de coisa, _principalmente artes e vôlei_!
+- 🎨 Eu estou interessada em um monte de coisa, _principalmente artes!_
   
-- 👩‍💻 Estou aprendendoa programar na escola.
-  
-- 💞️ Sou bobinha.
+- 👩‍💻 Estou aprendendo a programar na escola.
   
 - 💜 Meu insta: _bebannwart_
 
